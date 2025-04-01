@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **2003singhsamar@gmail.com**
 
-- 📄 Know about my experiences [https://github.com/Samarsingh05/Resume/blob/main/SamarSingh_Resume.pdf](https://drive.google.com/file/d/1eY3OWg_qR80gPJYz2lEVXOQlwl7N0h_8/view?usp=sharing)
+- 📄 Know about my experiences [https://github.com/Samarsingh05/Resume/blob/main/SamarSingh_Resume.pdf]([https://drive.google.com/file/d/1eY3OWg_qR80gPJYz2lEVXOQlwl7N0h_8/view?usp=sharing](https://drive.google.com/file/d/1PHUGgj_AAWbkmEvjwdJWzzeqqvDsr_k3/view?usp=sharing))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
