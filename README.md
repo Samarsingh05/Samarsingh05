@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **2003singhsamar@gmail.com**
 
-- 📄 Know about my experiences https://drive.google.com/file/d/1i6odwbBvWR_36EEjPihhUXEhL39xoisQ/view?usp=sharing
+- 📄 Know about my experiences https://drive.google.com/file/d/1HM2p3FmPt_oHyvOsXpouSe7FpmmeSP7j/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
